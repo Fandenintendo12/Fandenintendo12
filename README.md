@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on lijer🤑👌
 -  📫 How to reach me ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: 42 demons (a fecha de escritura)
+- ⚡ Fun fact: 63 demons (a fecha de escritura)
 
 <!---
 Fandenintendo12/Fandenintendo12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
